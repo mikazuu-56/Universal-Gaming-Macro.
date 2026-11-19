@@ -1,0 +1,2 @@
+# Universal-Gaming-Macro.
+yy
